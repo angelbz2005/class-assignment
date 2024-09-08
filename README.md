@@ -1,0 +1,1 @@
+My name is Angelica Barraza I have 3 children, two boys the oldest is 16 and the youngest 5 and a 7 year old girl. I am,taking this class to follow a carrer path in database analysis, at this moment I work in configurations and my employer is paying for my degree.
